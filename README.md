@@ -1,1 +1,1 @@
-I'm doing for an assignment
+I'm doing it for an assignment
